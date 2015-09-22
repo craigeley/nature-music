@@ -1,4 +1,4 @@
-297c
+Nature's Music
 ====
 
-The course home for ENG / MUSC 297c, The Nature of Sound / The Sound of Nature, offered Spring 2014 at Penn State University.
+The course website for Nature's Music, offered for the first time in the Fall of 2015 through  University of Wisconsin-Madison Contuning Studies.
